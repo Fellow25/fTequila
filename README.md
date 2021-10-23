@@ -1,5 +1,4 @@
 # fTequila
 
-Discord: Fellow#3858
-
-https://discord.gg/2FFjAAc8g5
+✅ Le discord de Fellow: https://discord.gg/87UvfZPJN9
+✅ Discord: Fellow#3858
